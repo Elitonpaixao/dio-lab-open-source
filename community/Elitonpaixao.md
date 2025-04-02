@@ -1,7 +1,7 @@
 ### Olá, eu sou Eliton Paixão! 👋
 
 🚀 **Engenheiro Eletricista | Data Science | Data Analytics | Power BI**  
-📍 Fortaleza, Brasil
+📍 Maracanaú - CE, Brasil
 
 ---
 
